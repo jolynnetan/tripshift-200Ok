@@ -6,7 +6,7 @@
 
 **Video Presentation:** https://youtu.be/rCYqyMUVAhw?si=LY_K5sZWG_MsoTbB
 
-**Presentation Slides:** https://canva.link/zrooqoh1fnl27sr
+**Presentation Slides:** https://canva.link/5bupkqqmu0ahkj9
 
 ---
 
